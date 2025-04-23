@@ -5,4 +5,4 @@
 - 💬 Ask me about Javascript, HTML and CSS
 - 📫 How to reach me ahmedchughtai322@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love code challanges and im an coffee addict!
+- ⚡ Fun fact: I love code challanges and im an coffee addict☕!
